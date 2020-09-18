@@ -78,7 +78,7 @@
     
         <p align="center"><img src="https://i.loli.net/2020/03/01/6Yi59OyLwQRuVNm.png"/></p>
 
-7. 完成，以防万一还是需要关注邮件或导员通知
+7. 完成，以防万一还是需要关注邮件或导员通知1
 
 
 
